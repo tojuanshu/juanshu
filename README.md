@@ -1,2 +1,2 @@
 # juanshu
-https://www.yuan37.com/
+https://www.tojuanshu.com/
